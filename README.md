@@ -1,1 +1,1 @@
-# MAI_1st_CURS
+# MAI_1st_Curs
